@@ -1,0 +1,1 @@
+# prak4kecerdasanbutan_g211220076
